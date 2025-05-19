@@ -1,2 +1,1 @@
-# mejfparis
-Dépôt du profil public
+# Mouvement des Étudiants Juifs Français
